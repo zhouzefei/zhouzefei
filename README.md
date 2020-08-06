@@ -1,1 +1,1 @@
-![image](https://github.com/zhouzfei/zhouzefei/blob/master/dino.gif)
+![image](https://github.com/zhouzefei/zhouzefei/blob/master/dino.gif)
